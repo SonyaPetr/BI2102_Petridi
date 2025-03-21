@@ -18,4 +18,4 @@
 
 ![My mascot](https://sun9-9.userapi.com/impg/I0YlP695HeevDhB66kiLUlsPm6Thgmrn4d3nFA/bU8XF2OxIfY.jpg?size=1600x1284&quality=95&sign=7cbf4d9528c6d618514606520b78ffc8&type=album)
 
-Прощайте.
+Пока-пока.
